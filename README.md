@@ -10,3 +10,8 @@ https://www.nvidia.com/en-us/drivers/physx/physx-9-19-0218-driver/ this is a phy
 
 siit saab mängu tekstuure
 https://gametextures.com/shop/596766
+
+
+
+
+https://www.akbild.ac.at/portal_en/akbild_startpage kunsti kool mida ma mõtlen
