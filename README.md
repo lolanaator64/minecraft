@@ -15,3 +15,7 @@ https://gametextures.com/shop/596766
 
 
 https://www.akbild.ac.at/portal_en/akbild_startpage kunsti kool mida ma mõtlen
+
+
+
+Diamond textures https://static.wikia.nocookie.net/minecraft_gamepedia/images/a/ab/Diamond_JE3_BE3.png/revision/latest?cb=20200325185153
